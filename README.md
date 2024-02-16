@@ -54,5 +54,5 @@ iCademy is a powerful mobile app designed to revolutionize the way we learn, col
 
 - 🌟 **[Visit Our Website](https://icademy.lordsignet.org)**
 - 📧 **[Email Us](mailto:rocklinganayo@lordsignet.org)**
-- linkdln **[Follow Us on linkdln](https://twitter.com/icademyapp)**
+-  **[Follow Us on linkdln](https://www.linkedin.com/in/anayo-rockling-5b9653185?trk=contact-info)**
 
